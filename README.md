@@ -4,7 +4,7 @@ Im a CS student looking to learn a bit about GitHub
 
 Im just starting out on this so i guess thats all for now (ᵕ—ᴗ—)
 
-Also, if u like Pokemon u are my fren 
+Also, if u like Pokemon u are my fren ᗜ⩊ᗜ
 <!--
 **Johann-Rajeev/Johann-rajeev** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
